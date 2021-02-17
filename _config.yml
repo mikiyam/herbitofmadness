@@ -23,7 +23,7 @@ email: mikiyam@protonmail.com
 description: >- # this means to ignore newlines until "baseurl:"
   An assemblage of mad women (and men!) striving towards a world that works for more.  
 baseurl: "" # the subpath of your site, e.g. /blog
-url: "www.herbitofmadness.com" # the base hostname & protocol for your site, e.g. http://example.com
+url: "htttp://herbitofmadness.com" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: herbitofmadness
 instagram_username: herbitofmadness
 facebook_username: herbitofmadness
