@@ -8,8 +8,7 @@ image:
 
 ---
 
-<div id="buzzsprout-player-7855792"></div>
-<script src="https://www.buzzsprout.com/1691602/7855792-1-if-marriage-doesn-t-want-me-zahra-taghlaoui-in-erfoud-morroco.js?container_id=buzzsprout-player-7855792&player=small" type="text/javascript" charset="utf-8"></script>
+<div id='buzzsprout-player-8005535'></div><script src="https://www.buzzsprout.com/1691602/8005535-1-if-marriage-doesn-t-want-me-zahra-taghlaoui-in-erfoud-morroco.js?container_id=buzzsprout-player-8005535&player=small" type="text/javascript" charset="utf-8"></script>
 
 Zahra Taghlaoui is from Erfoud. Born with a right hand and leg handicap, she is now the main assistant at Anouar Coordination of Associative Action which promotes the inclusion and awareness of diabetes and general disability in Erfoud. For those of you who don't know me, I see stuff when people talk. She's giggling as she bathes in the sunrise on the shores of a lake when she speaks of going to work before her family wakes up and returning home to find her family already asleep. "I cannot stay away from the organization!!" made me laugh. We need more people like her.
 
