@@ -1,11 +1,11 @@
 ---
 
-title: Where are the massive drums/Sofia Camacho in Mexico 
+title: Where are the massive drums / Sofia Camacho in Mexico 
 layout: post
 
 ---
 
-Sophia is the owner of a consultancy firm Kaxan that specializes in environmental and gender issues in Mexico. She went on a trip on Ship for World Youth (http://swy.international/) where she connected with her calling. I. Want. To. Go. On. A. Ship! She is now running several campaigns on the endangered species in Mexico. She loves odd conversations with people--for example, discussions massive drums which were made 600 years ago--but that is also my cup of tea. 
+Sophia is the owner of a consultancy firm Kaxan that specializes in environmental and gender issues in Mexico. She went on a trip on Ship for World Youth (http://swy.international/) where she connected with her calling. I. Want. To. Go. On. A. Ship! She is now running several campaigns on the endangered species in Mexico. She loves odd conversations with people--for example, discussions on massive drums which were made 600 years ago--but that is also my cup of tea. 
 
 <h1>Full transcription/Summary</h1>
 
