@@ -57,7 +57,7 @@ We started with people we knew in our university area and work and used the snow
 
 **What is one really memorable experience from your work so far?**  
 
-The most memorable would be the stigma and fact series in that I learned so much from that series, and in December 31 2021 we published a magazine which I will give the link to you shortly. These two experiences in particular are very important; as a Bangali person I do have some understanding of what goes on including how there is a lot of violence in many of the places where indigenous people live, but having access to these stories made the experience very memorable in that looking at statistics and listening to people’s stories first hand is something very different. It has inspired me to work even harder for this cause. 
+The most memorable would be the stigma and fact series in that I learned so much from that series, and in December 31 2020 we published a magazine which I will give the link to you shortly. These two experiences in particular are very important; as a Bangali person I do have some understanding of what goes on including how there is a lot of violence in many of the places where indigenous people live, but having access to these stories made the experience very memorable in that looking at statistics and listening to people’s stories first hand is something very different. It has inspired me to work even harder for this cause. 
 
 **How is the organization managing financially?**  
 
