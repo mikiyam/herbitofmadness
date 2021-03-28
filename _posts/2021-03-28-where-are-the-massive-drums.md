@@ -5,7 +5,11 @@ layout: post
 
 ---
 
-Sophia is the owner of a consultancy firm Kaxan that specializes in environmental and gender issues in Mexico. She went on a trip on Ship for World Youth (http://swy.international/) where she connected with her calling. I. Want. To. Go. On. A. Ship! She is now running several campaigns on the endangered species in Mexico. She loves odd conversations with people--Aha! And so, she is here on the show. 
+<div id="buzzsprout-player-8224537"></div>
+<script src="https://www.buzzsprout.com/1691602/8224537-3-where-are-the-massive-drums-sofia-camacho-in-mexico.js?container_id=buzzsprout-player-8224537&player=small" type="text/javascript" charset="utf-8"></script>
+
+Sofia is the owner of a consultancy firm Kaxan that specializes in environmental and gender issues in Mexico. She went on a trip on Ship for World Youth (http://swy.international/) where she connected with her calling. I. Want. To. Go. On. A. Ship! She is now running several campaigns on the endangered species in Mexico and loves odd conversations with people--Aha! And so, she is here on the show. 
+
 <h1>Full transcription/Summary</h1>
 
 **Hi, Sophia. This is my first time meeting you. For those of us who don't know you, who are you and what do you do?**
