@@ -1,6 +1,6 @@
 ---
 
-title: A mermaid across borders / Leni Alvarez in Mexico 
+title: A mermaid knows no borders / Leni Alvarez in Mexico 
 layout: post
 
 ---
