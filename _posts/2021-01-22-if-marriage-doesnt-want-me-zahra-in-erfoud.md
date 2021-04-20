@@ -23,7 +23,7 @@ Zahra Taghlaoui is from Erfoud. Born with a right hand and leg handicap, she is 
 
 'This is a book covering human body language and most of human communication is non-verbal. When I read this book I began to understand each situation without even needing to hear what people were saying; the entire body gives us a better picture than speech on its own.'
 
-<h1> Full Transcription</h1>
+<h1> Full Transcription/Summary</h1>
 
 **It’s been 6 months since we were scheduled to interview but we never had a chance, and now we are here in December! Can you tell me about you?**  
 

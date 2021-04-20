@@ -24,7 +24,7 @@ Nazwa is our guest today! I’m particularly fond of Nazwa and I like all of her
 
 'This is not a single book, but if you want to learn about a certain topic and you're struggling to find specific and organised content, they have an excellent collection of introductory books on a range of topics.'
 
-<h1>Full Transcription</h1>
+<h1>Full Transcription/Summary</h1>
 
 **Hey Nazwa! Hi how are you doing?**   
 I’m doing good, how about you?
